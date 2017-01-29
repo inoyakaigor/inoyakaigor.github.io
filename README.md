@@ -1,0 +1,1 @@
+# inoyakaigor.github.io
